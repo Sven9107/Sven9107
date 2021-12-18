@@ -2,4 +2,4 @@
 - 👀 I’m interested in e-learning
 - 🌱 I’m currently learning basics
 - 💞️ I’m looking to collaborate on innovative e-learing projects
-- 📫 DM me
+- 📫 DM me on LinkedIn: https://www.linkedin.com/in/svenja-hermesdorff-108586182/
