@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sven9107
+- 👀 I’m interested in e-learning
+- 🌱 I’m currently learning basics
+- 💞️ I’m looking to collaborate on innovative e-learing projects
+- 📫 DM me
